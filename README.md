@@ -1,0 +1,1 @@
+At FOGK, we honor the legacy of eyewear with every frame we create. Inspired by vintage silhouettes and artisanal craftsmanship, our sunglasses are more than accessories — they’re heirlooms. Built to last. Designed to turn heads.
